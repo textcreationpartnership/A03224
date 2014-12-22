@@ -37,6 +37,10 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
+1. THE FIRST AND SECOND partes of King Edward the fourth.
+Enter King Edward, the Dutches of Yorke, the Queene, the Lord Howard, and sir Thomas Sellinger.Dutch
+    _ THE SECOND PART of King Edward the Fourth.
+
 **Types of content**
 
   * There are 5147 **verse** lines!
